@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨🏻‍💻Hi, I'm Francesco<br>🏫Third Year Computer Science student @ Università degli Studi di Salerno<br>📖 My interests are: <br>🤝 Cybersecurity<br>🤖 Artificial Intelligence<br></> Software Engineering<br>⚡ Curiosity drives me into different fields, and I try to do my best<br>in every single one of them!<br>🤝Don't be shy, if you want to collab just message me!
+👨🏻‍💻Hi, I'm Francesco<br>🏫Third Year Computer Science student @ Università degli Studi di Salerno<br>📖 My interests are: <br>🤝 Cybersecurity<br>🤖 Artificial Intelligence<br></> Software Engineering<br>⚡ Curiosity drives me into different fields, and I try to do my best in every single one of them!<br>🤝Don't be shy, if you want to collab just message me!
 
 
 ## 🌐 Socials:
